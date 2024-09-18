@@ -5,5 +5,6 @@ Meu nome é Ester, prazer em te conhecer
 - Galaxy Aesthetic 🌙⭐🌠
 - Jesus é o unico Salvador ✝️
 - Amo a psicologia e a teoria dos 4 temperamentos.
+- Gosto de Anne with an E
 
 - ![]( https://media1.tenor.com/m/D6P7ayaAqY0AAAAd/the-chosen-os-escolhidos.gif)
