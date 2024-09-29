@@ -6,5 +6,6 @@ Meu nome é Ester, prazer em te conhecer
 - Jesus é o unico Salvador ✝️
 - Amo a psicologia e a teoria dos 4 temperamentos.
 - Gosto de Anne with an E
+- Amo Gris
 
 - ![]( https://media1.tenor.com/m/D6P7ayaAqY0AAAAd/the-chosen-os-escolhidos.gif)
